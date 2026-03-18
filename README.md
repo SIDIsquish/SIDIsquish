@@ -1,6 +1,6 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ♰─────*༺♱༻*─────♰
 
-ㅤㅤㅤ"cross my [heart]() and hope to die,"
+ㅤㅤㅤ"cross my [heart](https://github.com/Conzercheez) and hope to die,"
 
 ㅤㅤㅤㅤㅤㅤㅤㅤ"promise me you'll never [leave](https://open.spotify.com/track/6lFUdRItQEsEuD7dSINL47?si=ba1c3ac6d48c4971) my side."
 
